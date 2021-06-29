@@ -8,8 +8,8 @@ más sobre programación, lo cual me sirva a mi para seguir mejorando proyectos 
 porque empecé un curso de Reparación de PC's, donde me dí cuenta donde realmente me sentía cómodo.
 
 Mis redes son:
-Instagram: @ybarragonza
-Facebook: https://www.facebook.com/gonza.ybarra
+- Instagram: @ybarragonza
+- Facebook: https://www.facebook.com/gonza.ybarra
 
 Ojalá les interese mi perfil, recién empiezo a interiorizarme cada vez más en este mundo hermoso que es la informática, así que todavía
 el camino es largo y hay mucho por aprender!
